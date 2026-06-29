@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Dan 4Christ
-- 👀 i Do Digital Graphics Designing
+- 👋 Hi, I’m MY Name is Nabende Dan (Dan_4christ)
+- 👀 iam  Digital Graphics Designer
 - 🌱 I’m currently Pursuing my course to be a developer at Metropolitan International University Kampala.
 - 💞️ Also I do Play keyboard(Piano) incase ur interested in Learning kindly contact me.
 - 📫 merdantrust@gmail.com  contact 0787014829 whatsapp 0704114907
